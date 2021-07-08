@@ -11,5 +11,5 @@
    
   
 - Order for two ! 
-   --> Anything that you are about to buy, it tells you who might also appreciate this product and you both get a discount by buying one each. 
+   --> Anything that you are about to buy, it tells you who among your contacts might also appreciate this product and you both get a discount by buying one each. 
 
