@@ -1,7 +1,7 @@
 # Anchoring Bias 
 
-I've heard a lot of anchoring bias. Why tendulkar and ganguli are so fondly remembered, why cricket always have a special place in our heart, why OG will be 
-my favorite DOTA team. Whoever was defining the genre remains the one person you anchor new experiences by. 
+I've heard a lot about anchoring bias. Why Tendulkar and Ganguli are so fondly remembered, why Cricket always have a special place in our heart, why OG will be 
+my favorite DOTA team. Whoever was defining the genre remains the one you anchor new experiences by. 
 
 My eighty year old neighbour contrasts the resteraunts they go now to the ones they used to go when they were newly married. The places which were considered 
 landmarks back then dont even show up in Google searches, yet the fondness remains. 
