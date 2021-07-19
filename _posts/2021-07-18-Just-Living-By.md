@@ -3,7 +3,7 @@
 What's the fascination about living in someone else's shoes? Doing their jobs, hanging around in their social circle, living in their bodies. 
 There's a comedy movie about each of these.
 Why does the idea of a vacation thrill us so much ? You look forward to it for the coming weeks. Finding yourself through travel is a big sell for youngsters.
-How can a new hobby/friend/location can change you entirely in a few months ? There seems to be a new viral dance move or coffee making trend every couple months
+How can a new hobby/friend/location can change you entirely in a few months ? There seems to be a new viral dance move or coffee making trend all the time.
 
 The contrast is the fact that many of us are doing the same everyday. Eating the same breakfast, doing the same job for years, having the same
 friends, living in the same place, eating similar meal, watching the same content. 
