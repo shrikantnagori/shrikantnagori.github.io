@@ -10,8 +10,8 @@ friends, living in the same place, eating similar meal, watching the same conten
 
 In this world where new experiences are both easy to get and plenty of variety available, the balance between easy to do regulars versus the unknown new which comes with multiple hidden obstacles is seen on a daily basis and the regular wins almost everytime. 
 
-Order from the same resteraunt on doordash or fine a new one and read reviews especially when you had searched for food, when hunger was at its peak. 
-Find a new movie on netflix or watch the same old show or top recommendation
+Order from the same resteraunt on doordash or find a new one after reading reviews when hunger was at its peak. 
+Find a new movie on netflix or watch the same old show or just the top recommendation
 Find a new gift or gift a giftcard.
 
 I was watching the new HBO movie, "Fake Famous" and realized that the instagram celebrities instead of giving the same content to their audiences push through to 
