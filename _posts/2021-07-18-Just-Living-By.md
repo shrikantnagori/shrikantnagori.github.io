@@ -14,5 +14,8 @@ Order from the same resteraunt on doordash or fine a new one and read reviews es
 Find a new movie on netflix or watch the same old show or top recommendation
 Find a new gift or gift a giftcard.
 
-Instead of just living by, just doing the basic minimum and then looking forward to that vacation or wanting to change yourself, stop half-assing through life. 
+I was watching the new HBO movie, "Fake Famous" and realized that the instagram celebrities instead of giving the same content to their audiences push through to 
+find new experiences to share. One of the big reasons for them being celebrities is how they are so dynamic. 
+
+So instead of just living by, just doing the basic minimum and then looking forward to that vacation or wanting to change yourself or becoming like the influencer you follow, stop half-assing through life. 
 Take a path with hidden risks and unknowns instead of the same route you always take. Maybe this is what people mean, when they say live life to the fullest. 
