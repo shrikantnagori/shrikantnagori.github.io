@@ -1,6 +1,6 @@
 # Just Living By
 
-What's like living in someone else's shoes? Doing their jobs, hanging around in their social circle, living in their bodies. 
+What's the fascination about living in someone else's shoes? Doing their jobs, hanging around in their social circle, living in their bodies. 
 There's a comedy movie about each of these.
 Why does the idea of a vacation thrill us so much ? You look forward to it for the coming weeks. Finding yourself through travel is a big sell for youngsters.
 How can a new hobby/friend/location can change you entirely in a few months ? There seems to be a new viral dance move or coffee making trend every couple months
