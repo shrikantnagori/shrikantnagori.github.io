@@ -9,6 +9,6 @@ One's sense of self is determined not by how they are measuring up against their
 Being competiive has high returns , it allows you to have benchmarks that you thought were not possible. 
 Being competitive keeps us motivated, just to keep yourself in the race against others, you have to show up.
 Being competitive is about respect, seeing someone defeat their demons helps you defeat yours. 
-Being competitive helps others, like friendship, competition is a two way street, the positive and the negative affect both. So being competitive helps others as much as it helps you.
+Being competitive helps others, like friendship, competition is a two way street. So being competitive helps others as much as it helps you.
 
 So continue being competitive. Fighting for things, involving others in your struggles, because the sure shot way of improving is to see others do it. 
