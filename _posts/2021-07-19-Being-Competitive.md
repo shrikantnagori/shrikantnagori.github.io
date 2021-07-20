@@ -12,3 +12,6 @@ Being competitive is about respect, seeing someone defeat their demons helps you
 Being competitive helps others, like friendship, competition is a two way street. So being competitive helps others as much as it helps you.
 
 So continue being competitive. Fighting for things, involving others in your struggles, because the sure shot way of improving is to see others do it. 
+
+
+![](https://media1.tenor.com/images/9ff19a0db59c65199e539cdbab5a7899/tenor.gif?itemid=21332844)
