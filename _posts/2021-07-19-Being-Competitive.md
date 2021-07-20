@@ -6,7 +6,7 @@ From the youngest ages, where scoring good marks didn't matter if you didnt scor
 in workplace has become a cornerstone in how we operate.
 One's sense of self is determined not by how they are measuring up against their old version, but by how much progress others have made.
 
-Being competiive has high returns , it allows you to have benchmarks that you thought were not possible. 
+Being competiive has high returns , it allows you to have standards for yourself that you thought were not possible. 
 Being competitive keeps us motivated, just to keep yourself in the race against others, you have to show up.
 Being competitive is about respect, seeing someone defeat their demons helps you defeat yours. 
 Being competitive helps others, like friendship, competition is a two way street. So being competitive helps others as much as it helps you.
