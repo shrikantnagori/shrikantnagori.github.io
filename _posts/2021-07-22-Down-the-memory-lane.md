@@ -26,7 +26,7 @@ he will provide for others in their time of need. Does someone want a drum of ri
 I never met him, but my imagination of my grand-dad is that he is like my dad.
 
 I think my mom and dad come from a different generation where life was about giving more to others rather than taking .  They came from such backgrounds ,
-and achieved things in life so late that they couldnt learn how to enjoy them. Getting rich was easy, feeling rich was not. I dont think they can change, so i wish
+and achieved things in life so late that they couldnt learn how to enjoy them. Getting rich was easy, living rich was not. I dont think they can change, so i wish
 for them to be find more ways of giving more to the world in their retirements :) 
 
 Happy Birthday papa !
