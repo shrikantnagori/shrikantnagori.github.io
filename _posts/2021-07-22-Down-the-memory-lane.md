@@ -16,7 +16,7 @@ Hard to call it a papa memory, as much as its a family memory. I absolutely can'
 From the hillside treks to the temple early in the morning to amazing toasted bread and bournvita. 
 Follow that with a long cold river bath in Ganga with thousands of others, the feeling can really make anyone spiritual.  Playing cards till lunch. From a 30 
 item lunch menu to falling asleep in a food coma, only to wake up to some delicious fruits and taking a plunge in the ganga again watching the sunset. 
-Follow that with amazing chaat, lassi and cards, vacations cannot get better. I think this is what has instilled in me the lifelong love for water and hikes. 
+Finishing the nigh with amazing chaat, lassi and cards, vacations cannot get better. I think this is what has instilled in me the lifelong love for water and hikes. 
 
 
 3\ The Giving Life
