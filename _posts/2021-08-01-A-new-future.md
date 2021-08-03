@@ -1,4 +1,4 @@
-# A new internet appraoches
+# A new internet approaches
 
 People like imaginary worlds. The number of people who played Pokemon Go, the fan base around Harry Potter and Game of Thrones are testament to the power of stories
 and fictional world. It might have sounded like a plot of a sci-fi book a few decades ago, but humans are already living 100% connected to internet and are able to 
