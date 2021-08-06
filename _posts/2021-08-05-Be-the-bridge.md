@@ -12,4 +12,4 @@ Being the bridge in others journeys is what helps you to understand what looked 
 biggest learning for yourself is, because no where is more inspiring than being around people who are taking new challenges and finding comfort that you are there
 with them for the ride.
 
-<iframe width="1280" height="720" src="https://www.youtube.com/embed/DZIUT1n0abw"  frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DZIUT1n0abw"  frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
