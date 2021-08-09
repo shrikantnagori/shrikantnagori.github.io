@@ -7,7 +7,7 @@ playing offline to online. From steam to Xbox. What I've found that makes a game
              requires knowing in depth about the game. Knowing who beats what, which combination works best , what new changes has happened that might affect
              past comparisons. 
 
-- Playing the probabilities : In any luck based game, the key is ot know the probability of your move. This of-course requires counting what
+- Playing the probabilities : In any luck based game, the key is ot know the probability of your move. This of-course requires counting/noting what
                               others are doing.  Poker is the easiest example, but this applies to most card based games where knowing how many cards of a type are
                               available vs how many cards are gone helps define the strategies up in play
 
