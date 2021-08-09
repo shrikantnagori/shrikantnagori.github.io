@@ -25,4 +25,4 @@ playing offline to online. From steam to Xbox. What I've found that makes a game
                           
  
 One of the best part of these mechanics is that these are so universal, that they apply to even trivia. The key in game playing is to spend the most time mastering
-the combos, which is where the most fun comes from. The rest are for merely winning and having a easy game :) 
+the combos, which is where the most fun comes from. The rest are for merely winning or having a easy game :) 
