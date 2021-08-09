@@ -24,5 +24,5 @@ playing offline to online. From steam to Xbox. What I've found that makes a game
                           but finding the weakness and reducing their probabilities is still the big way games are won and lost.
                           
  
-One of the best part of these mechanics is that these are so univeral, that they apply to even trivia. The key in game playing is to spend the most time mastering
+One of the best part of these mechanics is that these are so universal, that they apply to even trivia. The key in game playing is to spend the most time mastering
 the combos, which is where the most fun comes from. The rest are for merely winning and having a easy game :) 
