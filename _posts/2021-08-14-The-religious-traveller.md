@@ -14,5 +14,4 @@ Religion doesnt just go away. Its imbibed in us from a young age and so we event
 
 What religious travel needs is a fresh perspective for the current generation. Its not about creating hashtags on janmashtami or hanuman jayanti. 
 Building products for teens that are religion inspired like Krishna comics or other cartoons, building games ( board games , escape rooms) leveraging the rich backstory of these
-places and individuals. Building better live streaming/internet solutions for individuals to stay better connected to teachings ( think substack/podcasts) and providing
-airbnb experiences for the traveller is the big space I expect multiple business to venture in the next coming years.
+places and individuals. Building better live streaming/internet solutions for individuals to stay better connected to teachings ( think substack/podcasts) and making big religion more friendly for the fairer sex is the big space I expect multiple business to venture in the next coming years.
