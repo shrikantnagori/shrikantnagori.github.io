@@ -9,4 +9,4 @@ learning makes the world less passionate.
 
 Knowing what to double click on and what to ignore is an under-sold skill in these times. Google and other giants will keep feeding more and more data to you, what 
 you consume and what you exercise is upto you. Application based learning retains much more than theoritical learning. Since in the end retention is all that matters,
-might as well, play the long game and pick depth-wise over breadth-wise whenever you can. 
+might as well, play the long game by doing application based learning , picking depth-wise or breadth-wise is then a personal choice. 
