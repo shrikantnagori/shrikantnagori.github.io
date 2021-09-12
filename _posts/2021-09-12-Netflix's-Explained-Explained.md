@@ -19,3 +19,6 @@ a beauty creator will  make skin complexity common knowledge , an environmentali
 
 As these stories gets retold from different perspectives and on different mediums, Hopefully, common knowledge doesn't get lost in translation, but
 rather gets embellished with even more lived in experiences by the creators.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C65iqOSCZOY" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
