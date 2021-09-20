@@ -12,11 +12,11 @@ than the mystery in the episode just like the office.
 
 The show developed themes that it ran multiple seasons, a heist episode , a detective-criminal working together episode, 
 a jimmy jabs / bet based episode, a road-trip episode. A lot of tv shows have done so in the past, a halloween and christmas episode 
-in friends for e.g, B99 modifications were the season highlights, not the random story twist like in other shows. 
+in friends for e.g, but B99 modifications were the season highlights, unlike adding story breakage in most other shows. 
 Characters kept doubling down on their personalities, but didnt feel like they overshadowed each other. 
 
-The finale was an amazing commentary on the show itself, especially the backstreet boys sing-along in a police roundup was a tribute to how its super hard to hit the high points in life 
-and in show making. The show leaves a lot to be remembered, what i'd remember it for is the constant smile and happiness it brought me, 
+The finale was an amazing commentary on the show itself, especially the backstreet boys sing-along in a police roundup was a tribute to how its super hard to hit the high points in life and in show making. 
+The show leaves a lot to be remembered, what i'd remember it for is the constant smile and happiness it brought me, 
 how cool cool...  cool was one of the first things i said to my now wife, how Boyle redefined what it means to be a bro , it is to be a constant cheerleader,
 how respect and playfulness go well together in a workplace and above all how Michael Schur is a legend. 
 
