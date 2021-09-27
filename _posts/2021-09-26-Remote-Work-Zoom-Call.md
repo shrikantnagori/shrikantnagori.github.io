@@ -15,4 +15,5 @@ Playing the devil's advocate, Shukra said this is the risk with global trade.  H
 might have something brewing, Kartikeya was unsure about US-China relationship , surya-chandra nodded their heads. 
 
 Indra who recently had a gender reveal party for one of his apsaras, sneezed, causing the wifi to have issues, Brihaspati reminded the team when Ganesha's vehicle 
-had wreaked havoc and all they need to do to keep the people loving the products is to figure out how to beat Netflix :)
+had wreaked havoc , but they had survived. This pandemic was a blessing and hopefully will give them clues to beat their biggest competitors : Netflix and Candy Crush 
+
